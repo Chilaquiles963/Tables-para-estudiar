@@ -1,1 +1,0 @@
-# Tables-para-estudiar
